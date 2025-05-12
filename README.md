@@ -1,2 +1,0 @@
-# X
-Anonymous@Cosmos
